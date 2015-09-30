@@ -1,4 +1,4 @@
-Transcript of <https://www.youtube.com/watch?v=A1GA2lUZDLk>.
+Transcript of <https://www.youtube.com/watch?v=Qby0ed4aVpo>.
 
 Full runtime: approximately 36m09s
 
